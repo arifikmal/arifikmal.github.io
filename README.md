@@ -1,5 +1,3 @@
-# ARIF IKMAL
-
 
 ## My name is Arif Ikmal
 
